@@ -1,1 +1,1 @@
-# japanese-learning-privacy-policy
+# japanese-speaking-practice-privacy-policy
